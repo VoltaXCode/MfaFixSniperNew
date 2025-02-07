@@ -1,0 +1,1 @@
+# bilmeyen yapmasın amk 
